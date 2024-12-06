@@ -1,1 +1,0 @@
-# friendlyreminder.github.io
